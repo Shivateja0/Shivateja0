@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SHIVATEJAKONDI
+- 👋 Hi, I’m @Shivateja0
 - 👀 I’m interested in ...dance and websearching
 - 🌱 I’m currently learning ... FULLSTACK JAVA
 - 📫 How to reach me ...https://www.linkedin.com/in/kondi-shivateja-258104232?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app ,
